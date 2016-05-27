@@ -1,2 +1,2 @@
 # tutorial-1
-Hasta las webas po
+ya ok, se puso serio. Estoy entendiendo esta weabada? Pues parece que si :D
