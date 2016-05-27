@@ -1,2 +1,2 @@
 # tutorial-1
-Aprendiendo GIT po weon
+Hasta las webas po
